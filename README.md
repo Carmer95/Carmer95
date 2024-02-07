@@ -2,7 +2,7 @@
 - 👀 I’m interested in many things including meditation, programming, gaming, and building healthy relationships :)
 - 🌱 I’m currently learning JavaScript to create an overlay for Rocket League, as well as a full stack for the Rocket League Splash Series, or RLSS, which is a Rocket League Tournament Series.
 - 💞️ I’m looking to collaborate on life. We all just want to share experiences 💚
-- 📫 How to reach me best would be via discord, HSGBalthier, or email, which is carmer95@gmail.com :). I typically respond within 3-5 business days.
+- 📫 How to reach me best would be via discord, HSGBalthier, or email, which is carmer95@gmail.com :). I typically respond within 3-5 business days, however the email can be hit or miss.
 - 😄 Pronouns: He/Him/One
 - ⚡ Fun fact: The self is a concept 💚
 
